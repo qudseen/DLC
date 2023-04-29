@@ -1,1 +1,3 @@
-# DLC
+
+
+I would like to talk about one of my hobbies here. Creative writing , poetry to be more specific is one my many hobbies and I can say it is my favoI would like to talk about one of my hobbies here. Creative writing, poetry to be more specific is one my many hobbies and I can say it is my favourite one. I have always admired languages and I believe that poetry captures the essence and richness of a language in the most beautiful way possible. Poetry is an art form that uses language to create a deep emotional connection with the reader. It is a form of expression that goes beyond the surface level of language and delves into the innermost thoughts and feelings of the writer. Poetry can be used to explore complex themes and ideas, to convey personal experiences, and to comment on society and the world we live in. It often employs figurative language and symbolism, allowing for multiple interpretations and layers of meaning.
